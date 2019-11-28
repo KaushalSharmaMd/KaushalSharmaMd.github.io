@@ -73,7 +73,7 @@ A company has found something truly magical (and easily profitable) if it create
 
 For one may fool the mind, but he will never fool the Heart.
 
-credit and inspiration-:Kapil Gupta.  
+ 
 
 
 
