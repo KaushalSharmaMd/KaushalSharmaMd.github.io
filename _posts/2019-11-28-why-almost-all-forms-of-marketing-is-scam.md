@@ -63,15 +63,9 @@ The company that seeks to make "extra money” is well-suited to the marketer wh
 
 Humans, it seems, have become conditioned to ignore their truly glorious capabilities.
 
-The wise company will understand that it sits at the center of a flea market. If it truly seeks to
+The wise company will understand that it sits at the center of a flea market. If it truly seeks to do something grand, there is no “marketing agency” in existence that has sufficiently devoted its life to become worthy of their call.
 
-do something grand, there is no “marketing agency” in existence that has sufficiently devoted its 
-
-life to become worthy of their call.
-
-If the product that a company is selling requires a “convincing” of the customer, rather than 
-
-creating an instant and dramatic emotional reaction within him ( Apple  users can understand here ) , the company will struggle.
+If the product that a company is selling requires a “convincing” of the customer, rather than creating an instant and dramatic emotional reaction within him ( Apple  users can understand here ) , the company will struggle.
 
 
 
