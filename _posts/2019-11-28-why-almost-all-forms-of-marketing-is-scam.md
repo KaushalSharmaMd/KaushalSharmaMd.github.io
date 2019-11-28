@@ -67,6 +67,13 @@ The wise company will understand that it sits at the center of a flea market. If
 
 If the product that a company is selling requires a “convincing” of the customer, rather than creating an instant and dramatic emotional reaction within him ( Apple  users can understand here ) , the company will struggle.
 
+If the product that a company is selling requires a “convincing” of the customer, rather than creating an instant and dramatic emotional reaction within him, the company will struggle.
+
+A company has found something truly magical (and easily profitable) if it creates the feeling that no price can possibly do justice to its worth.
+
+For one may fool the mind, but he will never fool the Heart.
+
+credit and inspiration-:Kapil Gupta.  
 
 
 
