@@ -6,9 +6,8 @@ permalink: /about/
 
 Nothing
 
-### More Information
 
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[email@domain.com](mailto:kaushalsharma111@outlook.com)
