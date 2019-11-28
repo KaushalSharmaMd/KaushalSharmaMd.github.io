@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Why almost all forms of marketing is Scam A research
+title: Why almost all forms of marketing is Scam.
 ---
 
 Almost all form of marketing is ineffective. 
