@@ -28,7 +28,6 @@ The truth is that human being( your costumer) do not care about what the marketi
 The Truth is that human beings do not act in ways that marketers think they should act.
 
 Most of the marketing experts are addicted to "features and benifits", this may be aurprize to many people,
-
 but "feature and benifits" are not the top of the humans's priority list. 
 
 Marketing experts are addicted to the "price", but the price matters in ways that are entirely opposite
