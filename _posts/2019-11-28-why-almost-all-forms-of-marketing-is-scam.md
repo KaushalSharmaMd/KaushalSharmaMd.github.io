@@ -21,9 +21,7 @@ Or precisely we can say, one must devote himself to understading the nature of h
 
 So Ask yourself, you know any of marketing expert who done such thing. 
 
-Have to you heard any of the marketing expert who , rather than going to school or getting a marketing degree or working at a marketing firm or something similiar, has devoted himself to 
-
-learning about human mind and human nature before trying to convince a single human being on the planet to hire him?.
+Have to you heard any of the marketing expert who , rather than going to school or getting a marketing degree or working at a marketing firm or something similiar, has devoted himself to learning about human mind and human nature before trying to convince a single human being on the planet to hire him?.
 
 The truth is that human being( your costumer) do not care about what the marketing experts think. 
 
