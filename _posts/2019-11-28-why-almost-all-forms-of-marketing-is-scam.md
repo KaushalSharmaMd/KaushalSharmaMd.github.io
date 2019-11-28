@@ -29,9 +29,7 @@ The Truth is that human beings do not act in ways that marketers think they shou
 
 Most of the marketing experts are addicted to "features and benifits", this may be aurprize to many people,but "feature and benifits" are not the top of the humans's priority list. 
 
-Marketing experts are addicted to the "price", but the price matters in ways that are entirely opposite
-
-to the ways marketing experts think it matters. 
+Marketing experts are addicted to the "price", but the price matters in ways that are entirely opposite to the ways marketing experts think it matters. 
 
 Marketing experts view human being through the lens of Logic and Research. 
 
@@ -59,9 +57,7 @@ Captivating human hearts is not a flower that can grow in the soil of “sales p
 
 For all sales presentations and marketing strategies are founded upon impurity and ulterior motive.
 
-What seems to be lost on marketing an advertising agency is that the human being has an inner sense 
-
-to detect what is not geniun. Thus preventing his heart from being captivated.
+What seems to be lost on marketing an advertising agency is that the human being has an inner sense to detect what is not geniun. Thus preventing his heart from being captivated.
 
 The company that seeks to make "extra money” is well-suited to the marketer who knows nothing about marketing. 
 
