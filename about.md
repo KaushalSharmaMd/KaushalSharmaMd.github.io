@@ -10,4 +10,4 @@ Nothing
 
 ### Contact me
 
-[email@domain.com](mailto:kaushalsharma111@outlook.com)
+[kaushalsharma111@outlook.com](mailto:kaushalsharma111@outlook.com)
