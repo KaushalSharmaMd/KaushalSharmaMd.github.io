@@ -3,11 +3,12 @@ layout: post
 title: Problems faced by people having high IQ .
 ---
 
-Note-: This article is only for people having high IQ, average IQ people will feel like a pointless rant. 
 
 IQ is generally presented as a purely positive thing, i.e., more is always good, nothing is wrong in being highly intelligent. 
 
 But having high Iq have it;s cons and pros also . 
+
+Note-: This article is only for people having high IQ, average IQ people will feel like a pointless rant. 
 
 let's talk about pros-:  better analytical ability, more academic success, more financial and career success, more business success etc. Now  the list of pros is long and it's a myth that intelligence can have no consand becouse of this attitude, the problems created by a high IQ often go misdiagnosed.
 
